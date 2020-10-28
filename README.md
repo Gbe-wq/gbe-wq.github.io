@@ -1,1 +1,0 @@
-# gbe-wq.github.io
